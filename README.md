@@ -1,6 +1,6 @@
 # OnlineChatConnect
 
-Jual Script: OnlineChatConnect – Solusi Chat Langsung untuk Website Anda
+Jual Script website: OnlineChatConnect – Solusi Chat Langsung untuk Website Anda
 
 Created By: Raihan_official0307 && Visualcodepo
 
