@@ -40,4 +40,4 @@ Dengan OnlineChatConnect, Anda mendapatkan solusi komunikasi yang terintegrasi d
 
 Hubungi kami sekarang dan mulailah menggunakan OnlineChatConnect untuk website Anda!
 
-Telegram: t.me/raihan_official0307
+Telegram: https://t.me/@raihan_official0307
